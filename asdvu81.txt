@@ -1,3 +1,4 @@
+//Happiness is not something ready-made. It comes from your own actions.
 //Success is not final, failure is not fatal: it is the courage to continue that counts
 //Have a great afternoon! Enjoy your lunch and keep shining
 //May your day be filled with laughter, sunshine, and a little bit of magic!
