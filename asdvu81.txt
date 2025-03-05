@@ -1,3 +1,4 @@
+//Sometimes the smallest step in the right direction ends up being the biggest step of your life.
 //Happiness is not something ready-made. It comes from your own actions.
 //Success is not final, failure is not fatal: it is the courage to continue that counts
 //Have a great afternoon! Enjoy your lunch and keep shining
