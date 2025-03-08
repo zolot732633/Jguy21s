@@ -1,3 +1,4 @@
+//Life is a journey, not a race. Take a deep breath, enjoy the little moments, and trust that everything will fall into place at the right time. Keep shining
 //Good morning! Wishing you a day full of joy and success!
 //Sometimes the smallest step in the right direction ends up being the biggest step of your life.
 //Happiness is not something ready-made. It comes from your own actions.
