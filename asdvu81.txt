@@ -1,3 +1,4 @@
+//Life’s too short to take seriously—eat the cake, take the nap, and pretend your WiFi is down when someone asks for a favor! ��
 //Success isn’t about luck—it’s about consistency, resilience, and the courage to keep going even when the odds are against you.
 //Life is a journey, not a race. Take a deep breath, enjoy the little moments, and trust that everything will fall into place at the right time. Keep shining
 //Good morning! Wishing you a day full of joy and success!
